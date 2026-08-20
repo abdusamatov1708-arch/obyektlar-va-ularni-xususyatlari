@@ -1,0 +1,1 @@
+# obyektlar-va-ularni-xususyatlari
